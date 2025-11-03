@@ -5,7 +5,7 @@
 ---
 
 ## 📫 Contattami
-- (https://www.linkedin.com/in/annamaria-bonetti-57547a35b/)  
+- (https://www.linkedin.com/in/annamaria-b-57547a35b/)
 
 ---
 
